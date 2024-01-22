@@ -1,2 +1,3 @@
 ![Screenshot 2024-01-22 221740](https://github.com/Amisha0971/MULTI-TEXT-ANIMATION-HTML-CSS/assets/136344215/c7da73c5-c1a1-49bf-b791-8ed624733266)
+![Screenshot 2024-01-22 221701](https://github.com/Amisha0971/MULTI-TEXT-ANIMATION-HTML-CSS/assets/136344215/c76258a2-8152-4118-b7df-ea532160a387)
 
